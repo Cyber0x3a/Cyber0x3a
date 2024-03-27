@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Python, Networking, and Linux system administration<br>💬 Ask me about Adobe Photoshop, Adobe Premiere Pro, Python, Web Penetration Testing, Wireless Penetratoin Testing<br>📫 How to reach me wl52hz@proton.me<br>⚡ Fun fact I learned all of these skills via self study
+🌱 I’m currently learning Python, Networking, and Linux system administration<br>💬 Ask me about Adobe Photoshop, Adobe Premiere Pro, Python, Web Penetration Testing, Wireless Penetration Testing<br>📫 How to reach me mohammadedresssafi@gmail.com<br>⚡ Fun fact I learned all of these skills via self-study
 
 
 ## 🌐 Socials:
